@@ -1,5 +1,5 @@
 ▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄
-# <header>Hello, Awesome lovely here! go to my rentry page for more info about me!!ੈ✩‧₊˚(work in progress rentry not done!)
+# <header>Hello, Awesome lovely here! go to my rentry page for more info about me!!ੈ✩‧₊˚
 
 
   
