@@ -1,5 +1,5 @@
 ▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄
-# <header>Hello, Awesome lovely here! go to my rentry page for more info about me!!ੈ✩‧₊˚
+# <header>Hello, Awesome lovely here! go to my straw page for more info about me!!ੈ✩‧₊˚
 
 
   
