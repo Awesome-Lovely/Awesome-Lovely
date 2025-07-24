@@ -1,6 +1,6 @@
 ▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄
 # <header>Hello, Awesome lovely here!!ੈ✩‧₊˚
-# I am a hankcon shipper btw!
+# Go ask me questions on my guestbook!
 
   
 
